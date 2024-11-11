@@ -1,1 +1,0 @@
-# TheJPollard3rd.github.io
